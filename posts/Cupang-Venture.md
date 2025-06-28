@@ -18,10 +18,10 @@ Ikan cupang dibagi menjadi dua kategori utama, yaitu:
 Merawat ikan cupang cukup mudah jika dilakukan dengan benar. Berikut tips perawatannya:
 
 1. **Akuarium**: Gunakan wadah minimal 1 liter untuk satu ikan. Lebih besar lebih baik.
-2. **Air**: Ganti air setiap 2â3 hari agar tetap bersih dan bebas amonia.
+2. **Air**: Ganti air setiap 2Ã¢ÂÂ3 hari agar tetap bersih dan bebas amonia.
 3. **Makanan**: Berikan pakan hidup seperti kutu air, cacing sutra, atau pelet khusus ikan cupang.
 4. **Pencahayaan**: Berikan pencahayaan secukupnya, tapi hindari sinar matahari langsung.
-5. **Temperatur**: Suhu ideal antara 24Â°Câ28Â°C.
+5. **Temperatur**: Suhu ideal antara 24ÃÂ°CÃ¢ÂÂ28ÃÂ°C.
 
 ## Perilaku Unik
 
